@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Nishanth-Kantipudi
-- 👀 I’m interested to make IMPOSIBLE - POSIBLE
+- 👀 I’m interested to make IMPOSSIBLE - POSSIBLE
 - 🌱 I’m currently learning THE CURRENT TREND
-- 💞️ I’m looking to collaborate on IMPOSIBLE THINGS
+- 💞️ I’m looking to collaborate on IMPOSSIBLE THINGS
 - 📫 How to reach me https://x.com/nish_kantipudi
 
 <!---
